@@ -7,4 +7,4 @@ Interested in Smart City/species distribution models(SDMs)
 Publications__https://orcid.org/0009-0002-1228-4840
 
 Linkedin__www.linkedin.com/in/chenhaojia-liu
-> Reach me  **liuchenhaojia@gmail.com** <
+> Reach me  **liuchenhaojia@gmail.com** 
